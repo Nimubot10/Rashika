@@ -1,0 +1,2 @@
+# Rashika
+💥මෙය ස්වයංක්‍රීයව ක්‍රියාත්මක Group Bot එකකි💥 ➡️මෙය මගින් ඔබට⬅️ 🔅සින්දු🔅(Songs) 🔹Sinhala songs🔹 🔹Dj Nonstop🔹 🔹English song🔹 🔹Tamil song🔹 🔅වීඩියෝ🔅(Video) 🔹mp4 Video🔹 🔹Youtube video🔹 🔅Stiker🔅 🔹Photo convent Stiker🔹 🔹Video convent Gift🔹 🚫Group Rules🚫 ♂️අනවශ්‍ය link දැමීමෙන් වලකින්න❌ ♂️අසභ්‍ය වචන කීමෙන් වලකින්න❌ ♂️අසභ්‍ය photo,video දැමීමෙන් වලකින්න❌ ♂️Admin ගරු කරන්න❤️ ♂️මෙම හේතු කඩ කිරීමෙන් ඔබව පෙර දැනුම් දීමකින් තොරව remove කරනු ලැබේ💥 ♂️Thank you❤️❤️
